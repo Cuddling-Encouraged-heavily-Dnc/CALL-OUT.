@@ -21,3 +21,7 @@ if you see a eunoia like mine please just simply block them, i warned them not t
  (DO NOT FUCKING HARASS THEM, THIS IS SIMPLY TO SPREAD AWARENESS SLIGHTLY INCASE U DONT WANT TO DEAL WITH SOMEONE WHO TAKES HEAVY HEAVY INSPO . U MAY BLOCK THEM . do not be mean . do not whisper them . do not bother them . they were kind (eunoia only the other jst went offline so i blocked) but just didnt listen . THANK YOU.)
 
  bro this better be the last time i gotta say, i didnt make this for anyone to hunt these people down. especially since 2 of these people copied me a while ago by now. and im a bit over it by now but still wanted to atleast WARN OTHERS . THIS IS JUST BECAUSE I WANTED TO MAKE IT OKAYY, PLSPLS dont take it the wrong way . ok bye p
+
+
+
+ (I WILL DELETE THIS SOMETIME . !! just warning.)
